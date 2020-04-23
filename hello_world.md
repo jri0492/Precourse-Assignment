@@ -6,3 +6,6 @@ Howdy y'all! My name is Joseph Ryan Izzo, but you can call me Joe. Pleasure to m
 * I am from the city that never sleeps, the Big Apple, the greatest city in the world.... **NEW YORK CITY!**
 * I am the older brother for two sisters.
 
+### Just a Few of My Favorite Things
+>My favorite movie
+My favorite movie is There Will Be Blood
