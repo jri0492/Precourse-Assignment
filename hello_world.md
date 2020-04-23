@@ -7,5 +7,6 @@ Howdy y'all! My name is Joseph Ryan Izzo, but you can call me Joe. Pleasure to m
 * I am the older brother for two sisters.
 
 ### Just a Few of My Favorite Things
->My favorite movie
-My favorite movie is There Will Be Blood
+
+##### Favorite Movie
+There Will Be Blood
