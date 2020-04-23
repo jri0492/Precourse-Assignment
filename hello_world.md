@@ -3,7 +3,9 @@ Howdy y'all! My name is Joseph Ryan Izzo, but you can call me Joe. Pleasure to m
 
 ## A Little Bit About Me:
 * I was born on April 04, 1992.
-* I am from the city that never sleeps, the Big Apple, the greatest city in the world.... ***NEW YORK CITY!***
+* I am from the city that never sleeps, the Big Apple, the greatest city in the world.... ***NEW YORK CITY!***  
+[NYC}(https://media.timeout.com/images/105551029/630/472/image.jpg)  
+> *New York! Concrete jungle where dreams are made of, there's nothing you can't do!*
 * I am the older brother for two sisters.
 
 ## Just a Few of My Favorite Things
